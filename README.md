@@ -1,0 +1,2 @@
+# Namnansuren
+mongolia
